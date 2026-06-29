@@ -1,4 +1,4 @@
-
+exclusive Script for sailor piece offers the most advanced sailor piece Script, with auto-farm and no cooldown. Perfect for dominating any match.
 
 
 
